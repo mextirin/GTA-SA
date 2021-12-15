@@ -1,2 +1,2 @@
 # GTA-SA
-Download and Play!
+GTA San Andreas V1.0, Just play and have fun!
